@@ -1,5 +1,7 @@
-## Hey Zuck, wanna buy this domain?
+# Hey Zuck, wanna buy this domain?
 
-### Meta
-### Metamate
-### Me
+## Meta
+
+## Metamate
+
+## Me
