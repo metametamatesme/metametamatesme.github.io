@@ -2,6 +2,6 @@
 
 ## Meta
 
-## Metamate
+## Metamates
 
 ## Me
